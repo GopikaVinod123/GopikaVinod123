@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GopikaVinod123
 - 👀 I’m interested in dancingg, watching novies.
-- 🌱 I’m currently learning in civil engineering
+- 🌱 I’m currently learning in civil engineering in GECB
 - 🌚 I'm interested to find new things 
 
 
