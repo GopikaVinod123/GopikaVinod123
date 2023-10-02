@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GopikaVinod123
-- 👀 I’m interested in dancingg, watching novies.
+- 👀 I’m interested in dancingg, watching movies.
 - 🌱 I’m currently learning in civil engineering in GECB
 - 🌚 I'm interested to find new things 
 
